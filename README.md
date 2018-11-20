@@ -1,1 +1,1 @@
-Il s'agit de mes projets perso
+Il s'agit de mes projets personnels
